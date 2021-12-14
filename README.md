@@ -1,2 +1,2 @@
 # somethink
-something about my mind
+pray
